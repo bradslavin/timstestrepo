@@ -16,4 +16,3 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Atque hoc loco similitu
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ego vero volo in virtute vim esse quam maximam; Duo enim genera quae erant, fecit tria. Aliud igitur esse censet gaudere, aliud non dolere. Sint modo partes vitae beatae.
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ut non sine causa ex iis memoriae ducta sit disciplina. Quis enim potest ea, quae probabilia videantur ei, non probare? Duo Reges: constructio interrete. Et quod est munus, quod opus sapientiae? Itaque hic ipse iam pridem est reiectus;
