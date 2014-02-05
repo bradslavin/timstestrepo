@@ -1,3 +1,27 @@
 timstestrepo
 ============
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Traditur, inquit, ab Epicuro ratio neglegendi doloris. An est aliquid per se ipsum flagitiosum, etiamsi nulla comitetur infamia? His singulis copiose responderi solet, sed quae perspicua sunt longa esse non debent. Si longus, levis; Si de re disceptari oportet, nulla mihi tecum, Cato, potest esse dissensio. Atque haec ita iustitiae propria sunt, ut sint virtutum reliquarum communia.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Videmus igitur ut conquiescere ne infantes quidem possint. Polycratem Samium felicem appellabant. Aut haec tibi, Torquate, sunt vituperanda aut patrocinium voluptatis repudiandum. Nam prius a se poterit quisque discedere quam appetitum earum rerum, quae sibi conducant, amittere. Piso igitur hoc modo, vir optimus tuique, ut scis, amantissimus. Ut in geometria, prima si dederis, danda sunt omnia. 
+
+Sin laboramus, quis est, qui alienae modum statuat industriae? At certe gravius. Itaque eos id agere, ut a se dolores, morbos, debilitates repellant. Sed ne, dum huic obsequor, vobis molestus sim. Quae iam oratio non a philosopho aliquo, sed a censore opprimenda est. Cum id fugiunt, re eadem defendunt, quae Peripatetici, verba. Haec quo modo conveniant, non sane intellego. Atque his de rebus et splendida est eorum et illustris oratio. 
+
+At ego quem huic anteponam non audeo dicere; Duo Reges: constructio interrete. Quid, si etiam iucunda memoria est praeteritorum malorum? Nosti, credo, illud: Nemo pius est, qui pietatem-; Oratio me istius philosophi non offendit; Age, inquies, ista parva sunt. Mihi enim erit isdem istis fortasse iam utendum. Aufert enim sensus actionemque tollit omnem.Lorem ipsum dolor sit amet, consectetur adipiscing elit. Sint ista Graecorum; Hoc sic expositum dissimile est superiori. Mihi enim erit isdem istis fortasse iam utendum. Tollitur beneficium, tollitur gratia, quae sunt vincla concordiae. De vacuitate doloris eadem sententia erit. Dici enim nihil potest verius.
+
+
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Quid turpius quam sapientis vitam ex insipientium sermone pendere? Etenim semper illud extra est, quod arte comprehenditur. Sed quid sentiat, non videtis. Ergo hoc quidem apparet, nos ad agendum esse natos. Ergo ita: non posse honeste vivi, nisi honeste vivatur? Qui convenit? Ut pulsi recurrant? Quo modo?
+
+
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Cum id fugiunt, re eadem defendunt, quae Peripatetici, verba. Sunt enim prima elementa naturae, quibus auctis vírtutis quasi germen efficitur. Duo Reges: constructio interrete. Ita prorsus, inquam; Aliter homines, aliter philosophos loqui putas oportere? Quam tu ponis in verbis, ego positam in re putabam. Sed fortuna fortis; Cum audissem Antiochum, Brute, ut solebam, cum M.
+
+Lorem.
+Lorem ipsum dolor sit amet consectetur adipiscing elit nullus est.
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Nosti, credo, illud: Nemo pius est, qui pietatem-; Duo Reges: constructio interrete. Qui potest igitur habitare in beata vita summi mali metus? A primo, ut opinor, animantium ortu petitur origo summi boni. Certe, nisi voluptatem tanti aestimaretis. Nihil illinc huc pervenit. Ut in geometria, prima si dederis, danda sunt omnia. Dic in quovis conventu te omnia facere, ne doleas. Ea, quae dialectici nunc tradunt et docent, nonne ab illis instituta sunt aut inventa sunt? Cur deinde Metrodori liberos commendas? 
+
+Tertium autem omnibus aut maximis rebus iis, quae secundum naturam sint, fruentem vivere. Tuo vero id quidem, inquam, arbitratu. Teneo, inquit, finem illi videri nihil dolere. Pisone in eo gymnasio, quod Ptolomaeum vocatur, unaque nobiscum Q. Quid enim de amicitia statueris utilitatis causa expetenda vides. An dubium est, quin virtus ita maximam partem optineat in rebus humanis, ut reliquas obruat? Sed tamen omne, quod de re bona dilucide dicitur, mihi praeclare dici videtur. Apud ceteros autem philosophos, qui quaesivit aliquid, tacet; 
+
+At enim hic etiam dolore. Nemo igitur esse beatus potest. Nondum autem explanatum satis, erat, quid maxime natura vellet. Ab his oratores, ab his imperatores ac rerum publicarum principes extiterunt. Quia, si mala sunt, is, qui erit in iis, beatus non erit. Non enim iam stirpis bonum quaeret, sed animalis. Nos vero, inquit ille; Sin laboramus, quis est, qui alienae modum statuat industriae?
+
+Lorem ipsum dolor sit amet, consectetur adipiscing elit. Quod autem principium officii quaerunt, melius quam Pyrrho; Nec vero hoc oratione solum, sed multo magis vita et factis et moribus comprobavit. Iam in altera philosophiae parte. Verba tu fingas et ea dicas, quae non sentias? Sine ea igitur iucunde negat posse se vivere? Duo Reges: constructio interrete. Age sane, inquam. Qua ex cognitione facilior facta est investigatio rerum occultissimarum. Expressa vero in iis aetatibus, quae iam confirmatae sunt. 
+
+Quamquam te quidem video minime esse deterritum. Sed residamus, inquit, si placet. Quorum altera prosunt, nocent altera. Summus dolor plures dies manere non potest? Ego vero isti, inquam, permitto. Sed eum qui audiebant, quoad poterant, defendebant sententiam suam. Igitur ne dolorem quidem. Hoc etsi multimodis reprehendi potest, tamen accipio, quod dant. 
+
+Est, ut dicis, inquit; Tu vero, inquam, ducas licet, si sequetur; Tollitur beneficium, tollitur gratia, quae sunt vincla concordiae. Gloriosa ostentatio in constituendo summo bono. Bestiarum vero nullum iudicium puto. Quod non faceret, si in voluptate summum bonum poneret. Sed quia studebat laudi et dignitati, multum in virtute processerat. Ut in geometria, prima si dederis, danda sunt omnia.
