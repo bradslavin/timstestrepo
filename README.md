@@ -16,4 +16,3 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Atque hoc loco similitu
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ego vero volo in virtute vim esse quam maximam; Duo enim genera quae erant, fecit tria. Aliud igitur esse censet gaudere, aliud non dolere. Sint modo partes vitae beatae.
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ergo hoc quidem apparet, nos ad agendum esse natos. Duo Reges: constructio interrete. Eodem modo is enim tibi nemo dabit, quod, expetendum sit, id esse laudabile. Si id dicis, vicimus. Sed vos squalidius, illorum vides quam niteat oratio. Aut haec tibi, Torquate, sunt vituperanda aut patrocinium voluptatis repudiandum. An dubium est, quin virtus ita maximam partem optineat in rebus humanis, ut reliquas obruat? Istam voluptatem perpetuam quis potest praestare sapienti?
