@@ -14,6 +14,3 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Expressa vero in iis ae
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Atque hoc loco similitudines eas, quibus illi uti solent, dissimillimas proferebas. Duo Reges: constructio interrete. Ad eas enim res ab Epicuro praecepta dantur. Estne, quaeso, inquam, sitienti in bibendo voluptas? Gerendus est mos, modo recte sentiat. Negat esse eam, inquit, propter se expetendam. Est igitur officium eius generis, quod nec in bonis ponatur nec in contrariis. Cur fortior sit, si illud, quod tute concedis, asperum et vix ferendum putabit?
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ego vero volo in virtute vim esse quam maximam; Duo enim genera quae erant, fecit tria. Aliud igitur esse censet gaudere, aliud non dolere. Sint modo partes vitae beatae.
-
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Ut non sine causa ex iis memoriae ducta sit disciplina. Quis enim potest ea, quae probabilia videantur ei, non probare? Duo Reges: constructio interrete. Et quod est munus, quod opus sapientiae? Itaque hic ipse iam pridem est reiectus;
