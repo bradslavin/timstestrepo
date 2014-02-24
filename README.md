@@ -10,6 +10,3 @@ Dulce amarum, leve asperum, prope longe, stare movere, quadratum rotundum. Quae 
 
 Sed vobis voluptatum perceptarum recordatio vitam beatam facit, et quidem corpore perceptarum. Sed eum qui audiebant, quoad poterant, defendebant sententiam suam. Nunc omni virtuti vitium contrario nomine opponitur. Nemo igitur esse beatus potest. Isto modo ne improbos quidem, si essent boni viri. Quacumque enim ingredimur, in aliqua historia vestigium ponimus. 
 
-Quamquam non negatis nos intellegere quid sit voluptas, sed quid ille dicat. Iam id ipsum absurdum, maximum malum neglegi. Quarum ambarum rerum cum medicinam pollicetur, luxuriae licentiam pollicetur. Satisne ergo pudori consulat, si quis sine teste libidini pareat? Intellegi quidem, ut propter aliam quampiam rem, verbi gratia propter voluptatem, nos amemus; Restatis igitur vos; Inde sermone vario [redacted] illa a Dipylo stadia confecimus. Sine ea igitur iucunde negat posse se vivere? 
-
-Duae sunt enim res quoque, ne tu verba solum putes. Duarum enim vitarum nobis erunt instituta capienda. Nummus in Croesi divitiis obscuratur, pars est tamen divitiarum. Animum autem reliquis rebus ita perfecit, ut corpus; Mene ergo et Triarium dignos existimas, apud quos turpiter loquare? Sin te auctoritas commovebat, nobisne omnibus et Platoni ipsi nescio quem illum anteponebas?
