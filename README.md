@@ -8,5 +8,3 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Videamus igitur sentent
 
 Dulce amarum, leve asperum, prope longe, stare movere, quadratum rotundum. Quae qui non vident, nihil umquam magnum ac cognitione dignum amaverunt. Mihi quidem Antiochum, quem audis, satis belle videris attendere. Est enim effectrix multarum et magnarum voluptatum. Ut nemo dubitet, eorum omnia officia quo spectare, quid sequi, quid fugere debeant? Ac tamen hic mallet non dolere. Videsne, ut haec concinant? Illa videamus, quae a te de amicitia dicta sunt. Ad eas enim res ab Epicuro praecepta dantur. 
 
-Sed vobis voluptatum perceptarum recordatio vitam beatam facit, et quidem corpore perceptarum. Sed eum qui audiebant, quoad poterant, defendebant sententiam suam. Nunc omni virtuti vitium contrario nomine opponitur. Nemo igitur esse beatus potest. Isto modo ne improbos quidem, si essent boni viri. Quacumque enim ingredimur, in aliqua historia vestigium ponimus. 
-
