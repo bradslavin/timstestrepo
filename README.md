@@ -6,4 +6,3 @@ Lorem ipsum dolor sit amet, consectetur adipiscing elit. Quo modo autem optimum,
 
 Lorem ipsum dolor sit amet, consectetur adipiscing elit. Videamus igitur sententias eorum, tum ad verba redeamus. At iam decimum annum in spelunca iacet. Moriatur, inquit. Quae cum dixisset paulumque institisset, Quid est? Compensabatur, inquit, cum summis doloribus laetitia. Duo Reges: constructio interrete. 
 
-Lorem ipsum dolor sit amet, consectetur adipiscing elit. Sic enim censent, oportunitatis esse beate vivere. Haec dicuntur inconstantissime. Ille incendat? Verum hoc idem saepe faciamus. Nec vero pietas adversus deos nec quanta iis gratia debeatur sine explicatione naturae intellegi potest. Sin laboramus, quis est, qui alienae modum statuat industriae?
