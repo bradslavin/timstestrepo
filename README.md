@@ -48,3 +48,5 @@ Cur igitur, inquam, res tam dissimiles eodem nomine appellas? Sin tantum modo ad
 Ab his oratores, ab his imperatores ac rerum publicarum principes extiterunt. Quorum sine causa fieri nihil putandum est. Hic nihil fuit, quod quaereremus. Haec et tu ita posuisti, et verba vestra sunt. Atque ab his initiis profecti omnium virtutum et originem et progressionem persecuti sunt. Expressa vero in iis aetatibus, quae iam confirmatae sunt. 
 
 Tuo vero id quidem, inquam, arbitratu. Esse enim, nisi eris, non potes. Itaque vides, quo modo loquantur, nova verba fingunt, deserunt usitata. Hoc non est positum in nostra actione.
+
+ Lorem ipsum dolor sit amet.
